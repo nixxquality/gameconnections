@@ -1,0 +1,3 @@
+# Subcategories
+- [[Space Mystery]]
+- [[Metroidvania]]

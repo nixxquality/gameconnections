@@ -1,0 +1,3 @@
+- Spatially complex levels
+- Interconnected shortcuts
+- All part of the same whole world

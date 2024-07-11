@@ -1,0 +1,1 @@
+An [[Exploration]] game developed by Retro Studios for the GameCube.

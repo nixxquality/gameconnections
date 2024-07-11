@@ -1,0 +1,1 @@
+You can go anywhere and reach the ending from start.

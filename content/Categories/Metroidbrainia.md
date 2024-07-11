@@ -1,0 +1,1 @@
+This awkward name refers to knowledge-gated games with meta-layers and Metroidvania elements.

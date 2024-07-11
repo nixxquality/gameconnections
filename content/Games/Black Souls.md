@@ -1,0 +1,1 @@
+A [[Cryptic, weird, schizo]] game developed by Sushi Yuusha Toro.

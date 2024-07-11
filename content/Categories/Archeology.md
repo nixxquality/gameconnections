@@ -1,0 +1,1 @@
+Decipher symbols from ancient civilizations.

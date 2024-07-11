@@ -1,0 +1,1 @@
+One of the games who originated the [[Metroidvania]] genre. Developed by Nintendo and Intelligent Systems for the SNES.

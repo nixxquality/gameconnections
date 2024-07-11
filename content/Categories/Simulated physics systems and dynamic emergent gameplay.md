@@ -1,0 +1,1 @@
+Can solve situations in many different ways.
